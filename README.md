@@ -19,7 +19,7 @@ Welcome to my GitHub profile. To elevate the organization, I aim to leverage my 
                   - 24/7 Support
 
  
-### - 💬 Ask me about https://www.linkedin.com/in/israt-jahan-84m96/ 
+### - 💬 Ask me about https://www.linkedin.com/in/md-rakib-hasan-5280851b8/ 
 ### - 📫 How to reach me: hasanrakib857@gmail.com
 
 
